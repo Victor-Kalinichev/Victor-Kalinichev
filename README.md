@@ -42,5 +42,5 @@
 
 - **Телефон**: +7(908)-930-34-68
 
-- **Почта**: Average.enjoyerr@gmail.com
+- **Почта**: Vestankk@yandex.ru
 
